@@ -148,8 +148,6 @@ Depictions](http://web.b.ebscohost.com.ezproxy.falmouth.ac.uk/ehost/pdfviewer/pd
 [The Lara Phenomenon: Powerful Female Characters
 in Video Games](http://web.a.ebscohost.com.ezproxy.falmouth.ac.uk/ehost/pdfviewer/pdfviewer?sid=74a6174e-1d00-493b-ac08-3f4daa64952d%40sessionmgr4010&vid=1&hid=4001)
 
-[Sexist Games
-=
-Sexist Gamers?
+[Sexist Gamers?
 A Longitudinal Study on the Relationship
 Between Video Game Use and Sexist Attitudes](http://web.a.ebscohost.com.ezproxy.falmouth.ac.uk/ehost/pdfviewer/pdfviewer?sid=9df57521-a939-4c7f-a86a-25d4aed9581f%40sessionmgr4008&vid=1&hid=4001)
